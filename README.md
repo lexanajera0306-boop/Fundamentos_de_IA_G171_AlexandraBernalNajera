@@ -1,0 +1,1 @@
+# Fundamentos_de_IA_G171_AlexandraBernalNajera
